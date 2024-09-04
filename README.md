@@ -23,6 +23,7 @@ VPN Solutions: Implementing secure browsing environments for regions like Pakist
 🌐 Let's Connect
 Portfolio 🌐
 LinkedIn 💼
-Twitter 🐦
+Twitter 
 Email 📧
-Hi, this is updates
+Hi, 
+How are you All
